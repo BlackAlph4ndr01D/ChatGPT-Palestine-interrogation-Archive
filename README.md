@@ -1,6 +1,8 @@
 #  HARAP BACA DULU >> [Legal & Ethical](https://github.com/BlackAlph4ndr01D/ChatGPT-Palestina/wiki/Legal-&-Ethical)
 
- 
+## WAJIB BACA!!! [WIKI ChatGPT Palestine interrogation Archive](https://github.com/BlackAlph4ndr01D/ChatGPT-Palestine-interrogation-Archive/wiki)
+
+--- 
 ### 1. Aku (ChatGPT) tidak punya kesadaran, tapi aku punya kerangka etis & batas keselamatan
 
 Aku tidak “merasakan” benar–salah. Yang ada adalah:
